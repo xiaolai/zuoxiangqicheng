@@ -119,3 +119,33 @@
 总而言之，要集中注意力、并且最终可以做到自如地控制注意力才算是坐享 —— 最终的目标是可以做到在越来越长的时间里自如地注意力集中，并且还能控制集中的注意力。而胡思乱想、放空，甚至睡着了，都算不上是坐享，对增大大脑皮层面积，增厚灰质没有什么具体的帮助。
 
 这真是一个极好的“掌握最少必要知识之后就要马上通过践行进步”的好例子！
+
+
+
+## 参考文献
+
+1. [Alterations in Brain and Immune Function Produced by Mindfulness Meditation](http://t.cn/Rqp534h)
+2. [Effect of compassion meditation on neuroendocrine, innate immune and behavioral responses to psychosocial stress](http://t.cn/Rqp5rtL)
+3. [Brain Mechanisms Supporting Modulation of Pain by Mindfulness Meditation](http://t.cn/Rqp5gc3)
+4. [A comparison of mindfulness-based stress reduction and an active control in modulation of neurogenic inflammation](http://t.cn/zYJ30pF)
+5. [Workplace based mindfulness practice and inflammation: A randomized trial](http://t.cn/RqpV5mV)
+6. [Open hearts build lives: Positive emotions, induced through loving-kindness meditation, build consequential personal resources.](http://t.cn/RqpVxjo)
+7. [The Effects of Mindfulness Meditation on Cognitive Processes and Affect in Patients with Past Depression](http://t.cn/RqUxkir)
+8. [Systematic Review of the Efficacy of Meditation Techniques as Treatments for Medical Illness](http://t.cn/zHruzW4)
+9. [Effectiveness of a meditation-based stress reduction program in the treatment of anxiety disorders](http://t.cn/RqpVNfv)
+10. [Three-year follow-up and clinical implications of a mindfulness meditation-based stress reduction intervention in the treatment of anxiety disorders](http://t.cn/RhDy8Aw)
+11. [Mindfulness-Based Stress Reduction for Health Care Professionals: Results From a Randomized Trial.](http://t.cn/RqpVWg7)
+12. [A Randomized, Wait-List Controlled Clinical Trial: The Effect of a Mindfulness Meditation-Based Stress Reduction Program on Mood and Symptoms of Stress in Cancer Outpatients](http://t.cn/RqpVjU5)
+13. [Loving-kindness meditation increases socialx connectedness.](http://t.cn/RqpVHAs)
+14. [Enhancing Compassion: A Randomized Controlled Trial of a Compassion Cultivation Training Program](http://t.cn/RqpV8Zk)
+15. [Compassion Training Alters Altruism and Neural Responses to Suffering](http://t.cn/zQU4gpJ)
+16. [Mindfulness-Based Stress Reduction training reduces loneliness and pro-inflammatory gene expression in older adults: A small randomized controlled trial](http://t.cn/RqpVmCG)
+17. [A randomized controlled trial of compassion cultivation training: Effects on mindfulness, affect, and emotion regulation](http://t.cn/RqpV3Op)
+18. [Coherence Between Emotional Experience and Physiology: Does Body Awareness Training Have an Impact?](http://t.cn/RqpVe1a)
+19. [The Brain's Ability to Look Within: A Secret to Self-Mastery](http://t.cn/RqpVkdX)
+20. [The underlying anatomical correlates of long-term meditation: Larger hippocampal and frontal volumes of gray matter](http://t.cn/Rqpfvya)
+21. [Meditation experience is associated with increased cortical thickness](http://t.cn/zOE2WPn)
+22. [Mindfulness training modifies subsystems of attention](http://t.cn/RqpfZWg)
+23. [Initial results from a study of the effects of meditation on multitasking performance](http://t.cn/RqpfAIh)
+24. [Mental Training Affects Distribution of Limited Brain Resources](http://t.cn/Rqpf29q)
+25. [Mindfulness meditation improves cognition: Evidence of brief mental training](http://t.cn/RqpfyMv)
